@@ -4,7 +4,7 @@ English reading group in Taipei
 
 ## Latest meetup
 
-[2019/07/10 18:30](2019-07-10.md)
+[2019/07/17 17:00](2019-07-10.md)
 
 ## Prerequisite
 
